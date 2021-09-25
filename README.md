@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zodiac300
+- 👀 I’m interested in Cybersecurity, Programming
+- 🌱 I’m currently learning Cybersecurity, C++
+- 💞️ I’m looking to collaborate on anything!
+- 📫 How to reach me send me a message on discord @Zodiac#6526
